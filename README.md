@@ -1,0 +1,1 @@
+# Sc_wind_Antofagasta_SanDiego
